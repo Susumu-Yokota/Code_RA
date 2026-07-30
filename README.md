@@ -1,0 +1,1 @@
+Hot and Cool Executive Functions Differentially Contribute to Familiarity-Based Prosocial Allocation in Adults<img width="442" height="84" alt="image" src="https://github.com/user-attachments/assets/b9d63e8e-cb64-42af-9603-1b93ab98e583" />
